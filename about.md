@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+This will be how I keep all of you informed about my adventures in Armenia. Happy reading!
 
 ### More Information
 
@@ -12,4 +12,4 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[mppmpp315@aim.com](mailto:mppmpp315@aim.com)
