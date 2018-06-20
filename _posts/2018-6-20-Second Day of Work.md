@@ -11,7 +11,9 @@ Mher accompanied me to the metro and rode it with me. He got off at the city cen
 
 Today at work, half of my coworkers are wearing the same thing they had on yesterday. My Armenian Pretravel Handbook warned me that this was normal. To be fair, this was the same in Kyrgyzstan. It’s funny because I used to have nightmares about wearing the same thing two days in a row back when I was in high school. It’s strange that in some countries that doesn’t violate a social norm, but in the U.S. it definitely does, unless you wear a uniform to work I guess.
 
-It turns out that there is also a food court near work in the other direction. It is in a mall. I notice that malls in other countries tend to be fancier, as in they will combine a mall with an arcade, and a petting zoo, or some other establishment that you would generally have to visit separate in the U.S. I guess if you think about it, it sounds pretty efficient. This mall was even fancier than the one I went to on Sunday night.
+It turns out that there is also a food court near work in the other direction. Anahit took me there. It is in a mall. But before we went there, we checked out the shoe outlet that is in the same building as ours. I decided that maybe I will buy a pair of shoes while I am here.
+
+I notice that malls in other countries tend to be fancier, as in they will combine a mall with an arcade, and a petting zoo, or some other establishment that you would generally have to visit separate in the U.S. I guess if you think about it, it sounds pretty efficient. This mall was even fancier than the one I went to on Sunday night.
 
 I walked around with Anahit. Kristina ran into us there. It feels like nobody speaks Russian at work, because they will all speak Armenian and then translate it to English for me. Kristina, the one who wants to teach everyone Armenian, actually talked with me in Russian on the way home. I think we were both surprised that each other spoke Russian.
 
