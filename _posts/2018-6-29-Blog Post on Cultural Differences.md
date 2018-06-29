@@ -1,7 +1,8 @@
 ---
 layout: post
-title: Program Requirement: Blog Post on Cultural Differences
+title: Blog Post on Cross Cultural Differences
 ---
+
 Because I won a scholarship to travel to Armenia for the OPIT program, I have two blog posts that I need to write during my stay here. These blog posts undoubtedly need to be more professional that what I have been posting. Below you can read the first of two for my program-related blogs. This blog is about the cultural differences that I've noticed in Armenia and how they differ from my experience in Kyrgyzstan last summer, as well as how they remind me of my own family in the U.S.
 
 Instead of comparing Armenia to the U.S., I instead initially started off by comparing Armenia to Kyrgyzstan. Last summer, I spent two months living in Kyrgyzstan, which was the longest consecutive duration of time I’ve ever spent abroad. Armenia will come close but not quite top that at a six-week stay. Hence, I initially assumed that these two experiences, and maybe even countries, would be comparable. I couldn’t have been more wrong.
