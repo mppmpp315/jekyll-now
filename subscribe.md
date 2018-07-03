@@ -1,7 +1,6 @@
 ---
 layout: page
 title: Subscribe
-permalink: /subscribe/
 ---
 
 <!-- Begin MailChimp Signup Form -->
