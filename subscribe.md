@@ -15,10 +15,8 @@ Please subscribe to my blog post to be notified of my latest posts!
 <div id="mc_embed_signup">
 <form action="https://github.us18.list-manage.com/subscribe/post?u=d34a2d400befb0287d66d92f5&amp;id=d9aed77d9b" method="post" id="mc-embedded-subscribe-form" name="mc-embedded-subscribe-form" class="validate" target="_blank" novalidate>
     <div id="mc_embed_signup_scroll">
-<div class="indicates-required"><span class="asterisk">*</span> indicates required</div>
 <div class="mc-field-group">
-	<label for="mce-EMAIL">Email Address  <span class="asterisk">*</span>
-</label>
+	<label for="mce-EMAIL">Email Address </label>
 	<input type="email" value="" name="EMAIL" class="required email" id="mce-EMAIL">
 </div>
 	<div id="mce-responses" class="clear">
