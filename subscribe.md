@@ -3,6 +3,8 @@ layout: page
 title: Subscribe
 ---
 
+Please subscribe to my blog post to be notified of my latest posts!
+
 <!-- Begin MailChimp Signup Form -->
 <link href="//cdn-images.mailchimp.com/embedcode/classic-10_7.css" rel="stylesheet" type="text/css">
 <style type="text/css">
