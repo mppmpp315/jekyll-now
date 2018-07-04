@@ -1,6 +1,6 @@
 ---
 layout: post
-Title: The Abandoned Warehouse
+Title: Abandoned Warehouse
 ---
 
 I haven’t felt this tired the entire time I’ve been here. It was to the degree where it actually hurt to be awake. My eyes hurt being open.
