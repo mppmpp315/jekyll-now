@@ -1,6 +1,6 @@
 ---
 layout: post
-title: First Russian Meeting &amp События; 
+title: First Russian Meeting &amp События
 ---
 
 I felt very productive today because I finally made a partial dent in handing out some of my presents. 
