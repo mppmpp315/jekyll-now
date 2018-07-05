@@ -17,9 +17,11 @@ Lana loves history. I asked her more about Azerbaijani-Armenian tensions and why
 
 I was asking a lot about Muslim countries and which ones were safe and which weren’t. Syria used to be safe before the war. It was fairly western apparently. If I applied for the CLS (Google it) in Arabic, I could go to Morocco, Jordan, or Yemen. Which was the safest? The answer Jordan. Ugh. I hated Jordan. I felt so uncomfortable. I decided that I would probably wear a hijab if I ever went somewhere like that long term. Lana said that as a white American, wearing shorts, men in somewhere like Egypt would view that as warrant enough to rape me. Nice. I thought back to all of the long skirts I brought to Kyrgyzstan last summer. I brought shorts that I thought I’d only be able to wear in England on my way home. I didn’t realize that Kyrgyzstan was very western. How naive. 
 
-Yes. Lana believe Americans were fairly naive about the rest of the world.
+Yes. Lana believe Americans were fairly naive about the rest of the world. At some point, we talked about Americans. I didn't understand why everyone viewed the U.S. as this golden land. Lana explained how the U.S. was a country designed for immigrants. For example, somewhere like England was incredibly hard to immigrate to. There was also less corruption. But America was a place where if you came there willing to work hard, you could make it. Everyone who came to the U.S. came with the hope of achieving the American dream.
 
-Lana thought that as a female, I shouldn’t go to a Muslim country without a man/husband. Why did I need to go there? There were so many other countries for me to go to. Russia. Yeah, I can’t go there. 
+Back to Muslim countries: Lana thought that as a female, I shouldn’t go to a Muslim country without a man/husband. Why did I need to go there? There were so many other countries for me to go to. Russia. Yeah, I can’t go there. 
+
+We talked about marriage. I told Lana that not very many people asked me if I was married, even though that was seemingly a cultural norm. That was because I was still relatively young. Lana got married at 19. She said that her parents told her not to. It was fine. She had a good relationship with her husband. He no longer lived in Yerevan. I'm not sure what that meant. But Lana said that if she didn't get married so young maybe she would have more opportunities. She told me that there was no need for me to worry about that now. I still had so many more opportnities to take advantage of.
 
 We talked about military services and how JW’s decline it. I asked what they do here instead. There was no alternative service. I explained how JW’s in South Korea sit in jail for conscious objection. I needed to ask still to find out what they did here.
 
