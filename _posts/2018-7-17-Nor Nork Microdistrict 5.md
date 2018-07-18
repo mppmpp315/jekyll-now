@@ -3,7 +3,7 @@ layout: post
 title: Nor Nork Microdistrict 5
 ---
 
-Nor Nork is so far away that it took an hour to get there by bus. Now by Kyrgyzstan standards, that wouldn’t be far at all, but by Armenian standards, that is very far away. So far, in fact, that getting home by bus around 9 P.M. was possible and I had to take a taxi home instead, which was about 15 times more expensive than taking a bus. Therefore, I was not happy about that, but in any event, I was happy to get home about three times more quickly than I would on a bus.
+Nor Nork is so far away that it took an hour to get there by bus. Now by Kyrgyzstan standards, that wouldn’t be far at all, but by Armenian standards, that is very far away. So far, in fact, that getting home by bus around 9 P.M. was impossible and I had to take a taxi home instead, which was about 15 times more expensive than taking a bus. Therefore, I was not happy about that, but in any event, I was happy to get home about three times more quickly than I would on a bus.
 
 There are only two Russian congregations that are reasonably close to where I live. Nor Nork was a stretch, but I was eager to meet new people and to continue distributing my presents. After all, I have less than two weeks left.
 
