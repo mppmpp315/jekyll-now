@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Thursday Night BBQ
---
+---
 
 I went home from the coffee shop to get some presents. My host mom of course fed me some soup, which I probably shouldn’t have eaten, considering how much I would be eating later. 
 
