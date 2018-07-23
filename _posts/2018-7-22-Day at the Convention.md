@@ -82,6 +82,8 @@ This walk actually was only 10 minutes. For once, finally. I got dropped off at 
 
 I had that glorious hour or so to myself and just when I wanted to sit down and attempt to blog, Mher returns with Hayk. It was around 10:30 almost and I was actually considering trying to go to bed at 11. Good one. I went to bed at midnight instead, as usual, although I keep forgetting this is a step up from 1 AM.
 
+Hayk walked in wearing the shirt that I gave him. It was from a track meet. I told him I liked his shirt and he laughed. Mher said the one I gave him was better, which was a t-shirt from a track meet. I said it's not better. It's not different. One was from a track meet. Once was from a cross country meet. I tried to explain the difference. This episode reminds me of different countries. I would never say one country is better than another. They are all just different and I appreciate them all in different ways.
+
 I had an interesting conversation with Hayk about online dating because apparently he online dates. There were a couple of different apps that he used, including Tinder. I don’t recall the names of the other two apps. He showed me the one app that notoriously had a lot of prostitutes on it. I hate to say this, but with most of them, you could look at them and just know that they were prostitutes. But more apparently, they left their number in their bio.
 
 It was funny because the first bio that Hayk showed me was in Russian, so I could read it, and the girl said that she still lives at home and wants kids. And I was like, you know that that would never be written in someone’s bio in the U.S., right?
