@@ -3,7 +3,7 @@ layout: post
 title: Karabakh
 ---
 
-I am calling this entry Karabakh because this morning at my Russian lesson my teacher told me the history of how Karabakh became the disputed area that is.
+I am calling this entry Karabakh because this morning during my Russian lesson, my teacher told me the history of how Karabakh became the disputed area that is today.
 
 In all honesty, I can’t retain history well at all, let alone history told to me in Russian, so I decided that this would be something that I will look up in Wikipedia in my spare time. What I did take away from this conversation is that is you post something on social media from Karaback and then try to go to Azerbaijan, you will not bode well. 
 
