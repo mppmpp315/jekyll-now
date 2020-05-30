@@ -1,7 +1,10 @@
 ---
 layout: page
-title: What Consumers Should Look For in a Home Improvement Company
+title: Scholarships
 ---
+
+<strong> What Consumers Should Look For in a Home Improvement Company </strong> 
+
 
 <!-- Please subscribe to my blog post to be notified of my latest posts! -->
 
@@ -28,11 +31,11 @@ Begin MailChimp Signup Form
 		<div class="response" id="mce-success-response" style="display:none"></div>
 	</div>    <!-- real people should not fill this in and expect good things - do not remove this or risk form bot signups-->
    
-    <-- <div style="position: absolute; left: -5000px;" aria-hidden="true"><input type="text" name="b_d34a2d400befb0287d66d92f5_d9aed77d9b" tabindex="-1" value=""></div>
+   <!-- <div style="position: absolute; left: -5000px;" aria-hidden="true"><input type="text" name="b_d34a2d400befb0287d66d92f5_d9aed77d9b" tabindex="-1" value=""></div>
     <div class="clear"><input type="submit" value="Subscribe" name="subscribe" id="mc-embedded-subscribe" class="button"></div>
     </div>
+ </form>
+</div> -->
 
-<-- </form>
-</div>
-<script type='text/javascript' src='//s3.amazonaws.com/downloads.mailchimp.com/js/mc-validate.js'></script><script type='text/javascript'>(function($) {window.fnames = new Array(); window.ftypes = new + Array();fnames[0]='EMAIL';ftypes[0]='email';}(jQuery));var $mcj = jQuery.noConflict(true);</script>
+<!-- <script type='text/javascript' src='//s3.amazonaws.com/downloads.mailchimp.com/js/mc-validate.js'></script><script type='text/javascript'>(function($) {window.fnames = new Array(); window.ftypes = new + Array();fnames[0]='EMAIL';ftypes[0]='email';}(jQuery));var $mcj = jQuery.noConflict(true);</script>
 End mc_embed_signup -->
