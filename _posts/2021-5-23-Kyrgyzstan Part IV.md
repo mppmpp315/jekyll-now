@@ -86,4 +86,3 @@ Apparently, a lot of people moved, so Muhabat told me, since the economy is not 
 We walked around the Philharmonic for a while, and then I took them to Sierra Coffee. Muhabat and I ate hamburgers, while Chinara had a dessert. They had coffee, and I was like oh, no. Not for me. Not at this hour. It was only $12 for the three of us. Plus, they were appreciative. They started planning for me to come over Friday evening, to which I obliged. It’s quite cheap to take people out to eat, so I’m going to do it as much as possible. 
 
 They took me to the marshrutka stop and I went home. I went out in service for an hour again on Zoom, took a shower, and went straight to bed by 11. I woke up at 9:30, which felt like an accomplishment. Here I am Sunday morning, awaiting a meeting with my former host family and Vlad and Andrey for dinner.
-![image](https://user-images.githubusercontent.com/20445698/119249062-cb2fdc80-bb63-11eb-9356-6362eaa4c5b7.png)
